@@ -13,7 +13,7 @@
 
 
 ### Connect with me
-- [Linkedin}(www.linkedin.com/in/natasha-hay-465894351)
+- [Linkedin](www.linkedin.com/in/natasha-hay-465894351)
 
 
 
